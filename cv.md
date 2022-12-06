@@ -1,3 +1,3 @@
-[b]Kolesnik Georgiy[/b]
+Kolesnik Georgiy
 
 RSShool discord Geo(@FuryGeorg )
